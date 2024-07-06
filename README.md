@@ -1,1 +1,3 @@
 # T20 2024 Final Match Analysis (IND vs RSA)
+
+https://www.aljazeera.com/wp-content/uploads/2024/06/AP24181703453378-1719693879.jpg?resize=1170%2C780&quality=80
